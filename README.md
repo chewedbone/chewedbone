@@ -13,7 +13,7 @@
 
 <div align="center">
 
-${\color{#8d7e6f}\text{ i go by kia . my pronouns are she/they/it , tho i pref she/they .}}$
+${\color{#8d7e6f}\text{ i go by wofi . my pronouns are she/they/it , tho i pref she/they .}}$
 
 ${\color{#8d7e6f}\text{ mentally unwell person . iwecare/caut , im also sensitive to some words you say .}}$
 
