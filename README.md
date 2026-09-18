@@ -30,7 +30,7 @@ ${\color{#8d7e6f}\text{ cuddle freely unless im with friends . whisp is also pre
 
 ${\color{#8d7e6f}\text{im a minor, below 14}}$
 
-[ata](https://ppathetic.atabook.org/) [pronoun.cc](https://pronouns.cc/@toybone)
+[ata](https://ppathetic.atabook.org/)
 
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=chewedbone&label=paintbrushes&labelColor=%238d7e6f&countColor=%23675039&style=flat)
 
