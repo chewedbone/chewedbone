@@ -20,7 +20,7 @@ ${\color{#8d7e6f}\text{ if i unfriend you , its probably nothing / something els
 
 ${\color{#8d7e6f}\text{ cuddle freely unless im with friends . whisp is also prefered . }}$
 
-[ata](https://ppathetic.atabook.org/)
+[ata](https://ppathetic.atabook.org/) [pronoun.cc](https://pronouns.cc/@toybone)
 
 
 </div>
