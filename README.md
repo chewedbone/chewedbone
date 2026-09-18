@@ -6,9 +6,7 @@
 
 <div align="center">
 
-![Uploading image.png…]()
-
-
+<img width="540" height="696" alt="image" src="https://github.com/user-attachments/assets/d408bf86-f955-40fb-a915-8209fa0a7626" />
 
 </div>
 
