@@ -6,6 +6,14 @@
 
 <div align="center">
 
+${\color{#8d7e6f}\text{if im doing the sleeping emote . it probably means im busy or offtabs .}}$
+
+${\color{#8d7e6f}\text{my statuses}}$
+
+${\color{#8d7e6f}\text{away: my online status , its just my default}}$
+
+${\color{#8d7e6f}\text{busy: im busy , or offtabs LEL . so no/late resp}}$
+
 <img width="379" height="485" alt="image" src="https://github.com/user-attachments/assets/0cddc860-0cd2-442d-b197-e50eba789996" />
 
 </div>
