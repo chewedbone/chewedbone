@@ -22,6 +22,7 @@ ${\color{#8d7e6f}\text{ cuddle freely unless im with friends . whisp is also pre
 
 [ata](https://ppathetic.atabook.org/) [pronoun.cc](https://pronouns.cc/@toybone)
 
+![Visitors](https://api.visitorbadge.io/api/visitors?path=chewedbone&label=paintbrushes&labelColor=%238d7e6f&countColor=%23675039&style=flat)
 
 </div>
 
