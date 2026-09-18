@@ -20,6 +20,8 @@ ${\color{#8d7e6f}\text{ if i unfriend you , its probably nothing / something els
 
 ${\color{#8d7e6f}\text{ cuddle freely unless im with friends . whisp is also prefered . }}$
 
+${\color{#8d7e6f}\text{im a minor, below 14}}$
+
 [ata](https://ppathetic.atabook.org/) [pronoun.cc](https://pronouns.cc/@toybone)
 
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=chewedbone&label=paintbrushes&labelColor=%238d7e6f&countColor=%23675039&style=flat)
